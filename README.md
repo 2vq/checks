@@ -1,2 +1,2 @@
 # ip
-![IP](https://cdn.upload.systems/uploads/yVE4Z5B0.png)
+![IP](https://raw.githubusercontent.com/cyberbully/checks/main/ip.png)
