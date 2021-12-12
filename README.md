@@ -1,2 +1,2 @@
 # ip
-![IP](https://barbie.is-my-waifu.xyz/​‌​‌‌​​​​​‌‌​‌‌‌​‌‌‌​‌‌‌​‌‌‌​‌‌​​‌​‌​‌‌‌​​‌‌‌​​‌​​‌‌​‌​​​‌​​‌​‌‌)
+![IP](https://cdn.upload.systems/uploads/zEVdvgCK.png)
