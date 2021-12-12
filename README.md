@@ -1,2 +1,2 @@
 # ip
-![IP](https://cdn.upload.systems/uploads/LRKEN86a.png)
+![IP](https://cdn.upload.systems/uploads/yVE4Z5B0.png)
